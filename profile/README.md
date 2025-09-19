@@ -4,7 +4,7 @@ In 2025, businessmen don’t just network in offices or conferences — they bui
 
 That short space can tell your story, show your personality, and even attract opportunities. If you’ve ever struggled with writing your [Instagram bio](https://biogrami.com), this guide is for you.  
 
-Here, you’ll find [150+ professional Instagram bio ideas for businessmen] (https://biogrami.com/150-professional-instagram-bio-ideas-for-businessmen-in-2025/) that can help you stand out and connect better with your audience.  
+Here, you’ll find [150+ professional Instagram bio ideas for businessmen](https://biogrami.com/150-professional-instagram-bio-ideas-for-businessmen-in-2025/) that can help you stand out and connect better with your audience.  
 
 ---
 
